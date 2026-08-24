@@ -12,7 +12,10 @@ Warning⚠️: this is under construction! (first time doing ts)
 
 ![1000003720](https://github.com/user-attachments/assets/310e5083-a812-4444-a70d-ba62c3d928fe)
 
-I am a genderfluid/gender apathic person!! so give me ANY pronouns :D
+I am a genderfluid/gender apathic person!! so give me ANY pronouns :D basically a
+
+![1000003762](https://github.com/user-attachments/assets/53a2077a-978a-453f-9ca7-74627650699f)
+
 
 <details>
   <summary>DNI List</summary>
@@ -57,10 +60,16 @@ WIP
 
 </details>
 
+![1000003764](https://github.com/user-attachments/assets/5789e658-6231-419d-af8d-18825a94d19d)
+
+
 <img width="150" height="20" alt="1000003723" src="https://github.com/user-attachments/assets/4df29caa-76c1-402e-927f-832f88579937" />
 
 Already taken by my handsome husband Chii Chii <3 X3
 <img width="150" height="20" alt="1000003733" src="https://github.com/user-attachments/assets/b89a0918-4bfe-4d8b-a599-8b559e140c2a" />
+
+<img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/d1365339-47e3-4b5c-90a9-5dc5df51badb" />
+
 
 
 <details>
@@ -96,9 +105,17 @@ Already taken by my handsome husband Chii Chii <3 X3
 
 ![1000003751](https://github.com/user-attachments/assets/205d793f-1ac0-498b-a87a-323d65090d71)
 
+<a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/51/51032dkcexb8pgt.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/754/754667r8n2u197zw.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank>glitter-graphics.com</a>
+
 </details>
 
 </details>
+
+<img width="868" height="50" alt="1000003762" src="https://github.com/user-attachments/assets/aef1266e-2973-4c5b-a879-bd4747a30952" />
+
+
 
 ## Now the IMPORTANT details abt me !
 
@@ -106,10 +123,46 @@ I have depression and i'm really hypersensitive!! so be careful with interaction
 Don't worry tho I'm getting better!! But I'm still very sensitive to things and also topics abt suicide, s/h, s/a,
 and other serious depressive topics as it can set me up to a bad mood! 
 
+<img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/40d1f600-57c0-40c8-ab7d-a3363d358ffc" />
+
+
 I'm also Alterhuman!! I'm specifically a therian and I am kinsidering 007n7 ^.^ 
 I am also a furry and kemonomimi :3 
+
+<img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/06acfe03-9215-4d26-9fa3-36a65f89b71c" />
+
 
 Be careful with touch in games! I wouldn't like u 2 be a freak 2 me as I already got a partner and makes me uncomfy!! >:[
 don't cuddle or kiss me if u r a stranger I don't know!! only friends can do that ^_^
 
+<img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/da06bcbb-6cb1-4af8-ab70-578d6ed98967" />
+
+
 Don't expect me to vent to you when I'm sad!! even if you are a close friend I can be stubborn on venting! -_-
+Also don't expect me to either show my face or voice,, Only HEAVILY close friends get to (which is rare asf), I was only really comfortable to do this with my partner and a old ex-friend of mine.
+
+talking about friends,, how to know if u r a close one!!
+
+<img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/05e695f1-db36-4f0e-8fa3-a21b1691db7d" />
+
+
+## Friend meter
+
+
+<details>
+
+New friend- I basically met u not 2 long ago so I will rarely show any info abt myself!!
+
+neutral friend- yk some basic information about me and I may talk to you every once in a while
+
+close friend- U get 2 know ALOT abt me but not 2 much !!
+
+HEAVILY close friend- U may now be allowed to hear my voice and u get 2 know some stuf abt my general life(like my brother or family) 
+
+</details>
+
+</details>
+
+Thats all!! FOR NOW >:3 
+but anyways see ya later!! and remember,,
+<img width="150" height="20" alt="1000003735" src="https://github.com/user-attachments/assets/2a4a80d6-f1ab-491f-b10b-985775692676" />
