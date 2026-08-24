@@ -95,3 +95,21 @@ Already taken by my handsome husband Chii Chii <3 X3
 <img width="150" height="30" alt="1000003754" src="https://github.com/user-attachments/assets/4bb67c8e-49f4-4459-96f7-55796ef641e9" />
 
 ![1000003751](https://github.com/user-attachments/assets/205d793f-1ac0-498b-a87a-323d65090d71)
+
+</details>
+
+</details>
+
+## Now the IMPORTANT details abt me !
+
+I have depression and i'm really hypersensitive!! so be careful with interactions with me mkay? 
+Don't worry tho I'm getting better!! But I'm still very sensitive to things and also topics abt suicide, s/h, s/a,
+and other serious depressive topics as it can set me up to a bad mood! 
+
+I'm also Alterhuman!! I'm specifically a therian and I am kinsidering 007n7 ^.^ 
+I am also a furry and kemonomimi :3 
+
+Be careful with touch in games! I wouldn't like u 2 be a freak 2 me as I already got a partner and makes me uncomfy!! >:[
+don't cuddle or kiss me if u r a stranger I don't know!! only friends can do that ^_^
+
+Don't expect me to vent to you when I'm sad!! even if you are a close friend I can be stubborn on venting! -_-
