@@ -166,3 +166,8 @@ HEAVILY close friend- U may now be allowed to hear my voice and u get 2 know som
 Thats all!! FOR NOW >:3 
 but anyways see ya later!! and remember,,
 <img width="150" height="20" alt="1000003735" src="https://github.com/user-attachments/assets/2a4a80d6-f1ab-491f-b10b-985775692676" />
+
+(if ur mu bf reading this,, this is 4 yu ml <3)
+                    -->
+![1000003759](https://github.com/user-attachments/assets/c4d7de8b-9a05-4233-a060-9c66c7a4979f)
+
