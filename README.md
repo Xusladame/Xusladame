@@ -133,7 +133,7 @@ I am also a furry and kemonomimi :3
 
 
 Be careful with touch in games! I wouldn't like u 2 be a freak 2 me as I already got a partner and makes me uncomfy!! >:[
-don't cuddle or kiss me if u r a stranger I don't know!! only friends can do that ^_^
+don't cuddle or kiss(specifically the action in the game ponytown) me if u r a stranger I don't know!! only friends can do that ^_^ 
 
 <img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/da06bcbb-6cb1-4af8-ab70-578d6ed98967" />
 
