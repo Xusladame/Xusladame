@@ -12,8 +12,7 @@ Warning⚠️: this is under construction! (first time doing ts)
 
 ![1000003720](https://github.com/user-attachments/assets/310e5083-a812-4444-a70d-ba62c3d928fe)
 
-I am a genderfluid/gender apathic person!! so give me ANY pronouns :D basically a
-
+I am a genderfluid/gender apathic person!! so give me ANY pronouns :D basically anything!! even many neo/xenopronouns :D (unless it relates to disgusting body fluids eugghg)
 ![1000003762](https://github.com/user-attachments/assets/53a2077a-978a-453f-9ca7-74627650699f)
 
 
