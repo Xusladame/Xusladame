@@ -38,6 +38,8 @@ I am a genderfluid/gender apathic person!! so give me ANY pronouns :D basically 
 >Dandy world fans (who aren't already my friend)
 >
 >Ppl who don't support pet dreaming or age dreaming (or regressing)
+>
+>Lady locket fictionkin doubles (yall might not really exist but i dont like doublesin specific cuz i gen feel like im the only real lady locket,,, dw I won't harass u tho if u r
 
 </details>
 
@@ -118,14 +120,14 @@ Already taken by my handsome husband Chii Chii <3 X3
 
 ## Now the IMPORTANT details abt me !
 
-I have depression and i'm really hypersensitive!! so be careful with interactions with me mkay? 
+i'm really hypersensitive!! so be careful with interactions with me mkay? 
 Don't worry tho I'm getting better!! But I'm still very sensitive to things and also topics abt suicide, s/h, s/a,
-and other serious depressive topics as it can set me up to a bad mood! 
+and other serious depressive topics as it can set me up to a bad mood! Also if u saw de depression pat b4, dw!1!1 I have made an awesome recovery thanks to my love Chii Chii :3
 
 <img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/40d1f600-57c0-40c8-ab7d-a3363d358ffc" />
 
 
-I'm also Alterhuman!! I'm specifically a therian and I am kinsidering 007n7 ^.^ 
+I'm also Alterhuman!! I'm specifically a therian and a Lady Locket fictkin!!(from Amygdala) ^.^ 
 I am also a furry and kemonomimi :3 
 
 <img width="500" height="10" alt="1000003764" src="https://github.com/user-attachments/assets/06acfe03-9215-4d26-9fa3-36a65f89b71c" />
