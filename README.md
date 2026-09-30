@@ -54,7 +54,8 @@ I am a genderfluid/gender apathic person!! so give me ANY pronouns :D basically 
 WIP
 ![1000003761](https://github.com/user-attachments/assets/8101ac9d-0856-42c6-8283-e6bf71b192f0)
 
->007n7 yumeshippers
+>Lady Locket yumeshippers (ik yall don't rlly exist but still,,)
+
 >
 
 </details>
